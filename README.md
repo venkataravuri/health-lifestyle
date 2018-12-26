@@ -1,10 +1,12 @@
 # Health & Lifestyle
 About Health &amp; Lifestyle ...
 
-## Hair Oil Preparation - to control hair loss & regrowth
+## Coconut Hair Oil Preparation - to control hair loss & regrowth
 
-Genuine Cocount Oil - Cold pressed, Not bought off-the-shelf. 1 liter
+### Ingrediants
+- 1 liter of cold pressed coconut oil. Don't use off-the-shelf commercial cocunt oil that you get in supermarket. 
 
+### Dried and powder
 - Menthi Powder made from Menthi seeds by soaking and drying later. :star: :star: :star:
 - Amla dried powder. :star: :star: :star: :star:
 - Curry leaves.  :star: :star: :star:
