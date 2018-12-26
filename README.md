@@ -1,14 +1,19 @@
 # Health & Lifestyle
 About Health &amp; Lifestyle ...
 
-## Coconut Hair Oil Preparation - to control hair loss & regrowth
+## Coconut Hair Oil Preparation - to control hair loss & regrowth :man: :woman:
 
-### Ingrediants
-- 1 liter of cold pressed coconut oil. Don't use off-the-shelf commercial cocunt oil that you get in supermarket. 
+### Ingredients
+#### Coconut Oil
+- 1 or 2 liters of _*cold pressed coconut oil*_. Don't use off-the-shelf commercial cocunt oil that you get in supermarkets. 
 
-### Dried and powder
-- Menthi Powder made from Menthi seeds by soaking and drying later. :star: :star: :star:
-- Amla dried powder. :star: :star: :star: :star:
+#### Dried & powdered below ingredients
+|  | Ingredient | | 
+| :---         | :---      | :--- |
+| :star: :star: :star:  | <img src="fenugreek.jpg" alt="Fenugreek" width="128"> | Methi (Fenugreek) powder made from Methi seeds after soaking, dried and powder. |
+| :star: :star: :star: :star: | <img src="amla.jpg" width="128"> | Amla (Gooseberry) dried powder. | 
+  
+-  
 - Curry leaves.  :star: :star: :star:
 - Hibiscus Leaves dried and powdered (Mandara) - Works as conditionar. :star:
 - Mehandhi leaves (Gorantikau) :star:
